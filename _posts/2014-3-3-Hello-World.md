@@ -1,10 +1,5 @@
 ---
 layout: post
-title: You're up and running!
+title: Variedad de coches de segunda mano a tu gusto
 ---
-
-Next you can update your site name, avatar and other options using the _config.yml file in the root of your repository (shown below).
-
-![_config.yml]({{ site.baseurl }}/images/config.png)
-
-The easiest way to make your first post is to edit this one. Go into /_posts/ and update the Hello World markdown file. For more instructions head over to the [Jekyll Now repository](https://github.com/barryclark/jekyll-now) on GitHub.
+![Texto alternativo](http://3.bp.blogspot.com/-pBKIbuPDadY/UfubG12HQbI/AAAAAAAACNo/HlDmVoNIHyA/s1600/logo.segundamano.jpg)
