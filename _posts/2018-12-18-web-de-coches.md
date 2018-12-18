@@ -22,7 +22,7 @@ Seat Altea, con algunos impactos de balas ( no hay rastro de sangres, balas ni s
 
 ![Texto alternativo](https://i1.wp.com/www.elmira.es/wp-content/uploads/2018/04/Tiroteo-Coche-impactos-de-bala-Jerez-2.jpg?fit=811%2C426&ssl=1)
 
-**VOLKSWAGEN - GOLF V **
+**VOLKSWAGEN - GOLF V**
 
 
 
