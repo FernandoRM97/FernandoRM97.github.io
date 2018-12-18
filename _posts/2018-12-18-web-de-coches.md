@@ -39,6 +39,9 @@ SE VENDE espectacular Nissan SETA de gasolina, UNICO PROPIERTARIO .... con todos
 
 
 **BMW 320**
+
+
+
 Siniestro de baja definitiva.bmw 320 compac 150cv, el motor y cambio esta en perfectas condiciones todo lo demas esta vendido, me queda motor y cambio, no regalo nada, el motor entero 2000€ sin accesorios algo menos, pero no regalo eeee regalo no, no regalo, regalo nada cero regalo,, regalo en relles y no es el motor ni el cambio.
 
 ![Texto alternativo](http://www.mercadoracing.org/imagenes-anuncios/48/615788/bmw-320-siniestro_0.jpg)
