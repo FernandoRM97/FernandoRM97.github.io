@@ -29,3 +29,10 @@ Seat Altea, con algunos impactos de balas ( no hay rastro de sangres, balas ni s
 Bendo el coche x cambio d beiculo, tiene sierre centralisao, evalunas elestricos, sensor de aparcamiento ( pactronic), alarma conectada al movil k me costo 700€, llantas 18, paragolpe trasero del r32, control de estavilidad (ESP), el embrage tiene 10.000kl y la correa 20.000 kl revision de aceites y filtros recien echa, la I.T.V. la paso el mes pasado, las cuviertas son las 4 nuevas, es un 1.9 diesel con 105cv, de consumo es un mechero. el precio es negosiable.. Color azul r
 
 ![Texto alternativo](https://www.autopista.es/media/cache/original/upload/images/imagegallery/imagegallery-46872-578620d2381cc.jpg)
+
+**NISSAN SETA**
+
+
+SE VENDE espectacular Nissan SETA de gasolina, UNICO PROPIERTARIO .... con todos los extras, muchos extras, sonido de música espléndido, llantas momo, también se entrega las ruedascompletas originales....kilómetros reales, reales... aunque parezca mentira... kilometros reales.... una ganga, poco consumo. Unico propietario, solo un capricho, el alerón se quita para la itv, y se pone el original, el interior perfecto como el primer día. Color granate.
+
+![Texto alternativo](https://alsrac.files.wordpress.com/2011/09/dscf5606.jpg)
