@@ -1,15 +1,14 @@
 ---
 layout: page
-title: About
+title: Acerca de nosotros
 permalink: /about/
 ---
 
-Some information about you!
 
-### More Information
+### Más Información
 
-A place to include any other types of information that you'd like to include about yourself.
+En segundamano.es puedes anunciar gratis tu coche de segunda mano. Es fácil y seguro y lo venderás rápido, porque somos especialistas en vehículos de ocasión.
 
-### Contact me
+### Contactenos
 
-[email@domain.com](mailto:email@domain.com)
+[cochesreventados@segundisimamano.com](mailto:email@domain.com)
