@@ -33,6 +33,6 @@ Bendo el coche x cambio d beiculo, tiene sierre centralisao, evalunas elestricos
 **NISSAN SETA**
 
 
-SE VENDE espectacular Nissan SETA de gasolina, UNICO PROPIERTARIO .... con todos los extras, muchos extras, sonido de música espléndido, llantas momo, también se entrega las ruedascompletas originales....kilómetros reales, reales... aunque parezca mentira... kilometros reales.... una ganga, poco consumo. Unico propietario, solo un capricho, el alerón se quita para la itv, y se pone el original, el interior perfecto como el primer día. Color granate.
+SE VENDE espectacular Nissan SETA de gasolina, UNICO PROPIERTARIO .... con todos los extras, muchos extras, sonido de música espléndido, llantas momo, también se entrega las ruedas completas originales....kilómetros reales, reales... aunque parezca mentira... kilometros reales.... una ganga, poco consumo. Unico propietario, solo un capricho, el alerón se quita para la itv, y se pone el original, el interior perfecto como el primer día. Color granate.
 
 ![Texto alternativo](https://alsrac.files.wordpress.com/2011/09/dscf5606.jpg)
