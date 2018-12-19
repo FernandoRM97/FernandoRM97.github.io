@@ -18,7 +18,7 @@ Nada de podrido ni picado en chapa Motor no está tocado Un regalo para los mani
 
 
 
-Seat Altea, con algunos impactos de balas ( no hay rastro de sangres, balas ni similar). Le funciona todo, solo daño en chapa, cristales y guarnecidos. Se vende ENTERO con papeles, se recomienda su re-matriculazción o cambio de color para conducir más tranquilamente por la zona sur(ADEJE). Se vende para la compra de vehículo blindado. Dejar número de móvil por correo. Color plata.
+Seat Altea, con algunos impactos de balas ( no hay rastro de sangres, balas ni similar). Le funciona todo, solo daño en chapa, cristales y guarnecidos. Se vende ENTERO con papeles, se recomienda su re-matriculazción o cambio de color para conducir más tranquilamente por la zona sur(ADEJE). Se vende para la compra de vehículo blindado. Dejar número de móvil por correo. Color negro.
 
 ![Texto alternativo](https://i1.wp.com/www.elmira.es/wp-content/uploads/2018/04/Tiroteo-Coche-impactos-de-bala-Jerez-2.jpg?fit=811%2C426&ssl=1)
 
